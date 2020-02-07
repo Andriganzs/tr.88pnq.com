@@ -1,1 +1,1 @@
-# tr.88pnq.com
+Hacked by
